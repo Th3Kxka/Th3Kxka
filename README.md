@@ -28,4 +28,4 @@
 ---
 ᵈⁱᵛⁱᵈᵉʳˢ ⁿ ᵖⁱˣᵉˡˢ ʷᵉʳᵉ ᶠᵒᵘⁿᵈ ⁱⁿ  [ᵗᵘᵐᵇˡʳ](https://www.tumblr.com)
 
-ᵐ/ʷ [ʳᵒˢᵉ](https://github.com/FurinaT
+ᵐ/ʷ [ʳᵒˢᵉ](https://github.com/FurinaT)
