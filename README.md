@@ -1,8 +1,8 @@
 <div align="center">
-
 𝘛𝘩𝘪𝘴 𝘱𝘭𝘢𝘤𝘦. . 𝘪𝘴 𝘣𝘶𝘵 𝘢 𝘷𝘪𝘴𝘪𝘰𝘯!
 
 ![](https://64.media.tumblr.com/dc0d6898709d73949bbf5f130fc38233/eb622308336cff29-3e/s1280x1920/aea765d6e9e52edabf840664ceffaf4a63625330.pnj)
+![](https://64.media.tumblr.com/198c1caeb99ef35873010155572f13d8/eb622308336cff29-62/s1280x1920/c9a25b39e2dafbe4eb31f18253b8f083ef30945f.pnj)
 
 𝔞𝔫𝔶![](https://64.media.tumblr.com/adbf098b1d275fb831abc6d08609e159/95ad12fd9e0aa6ea-6a/s75x75_c1/7b7cff1c593e6b9928b729a00a0773515d7b5cfd.gifv)𝔭𝔯𝔬𝔫𝔬𝔲𝔫𝔰
 
@@ -14,4 +14,4 @@
 [𝟙](https://en.pronouns.page/@.Kuji) [𝟚](https://rentry.co/Th3Kxka) [𝟛](https://rentry.co/Divination_Commission)
 
 ---
-ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ᵐᵘʳᶜᵘᵒʳ](https://www.tumblr.com/murcuor/750889951804243968/charlotte-dan-heng-graphics-f2u-non?source=share)
+ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ᵐᵘʳᶜᵘᵒʳ](https://www.tumblr.com/murcuor/750889951804243968/charlotte-dan-heng-graphics-f2u-non?source=share)-heng-graphics-f2u-non?source=share)
