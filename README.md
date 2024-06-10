@@ -8,7 +8,7 @@
 
 𝔐𝔦𝔫𝔬𝔯![](https://64.media.tumblr.com/348c8c1305e5c31374971064f97ef221/95ad12fd9e0aa6ea-db/s75x75_c1/edd9268dfaae33e3b465552183669d87671b004a.gifv)
 
-ℑ 𝔡𝔬𝔫’𝔱 𝔩𝔦𝔨𝔢 𝔟𝔢 𝔡𝔦𝔰𝔱𝔯𝔲𝔟 𝔰𝔬𝔬 . . | 𝔩𝔞𝔷𝔶 ![](https://64.media.tumblr.com/2462196a4c3980a10c62821e70208b77/95ad12fd9e0aa6ea-8d/s75x75_c1/bcffac91626fecc002025e7d7af6158fd9f21289.gifv) 𝔞𝔯𝔱𝔦𝔰𝔱
+ℑ 𝔡𝔬𝔫’𝔱 𝔩𝔦𝔨𝔢 𝔟𝔢 𝔡𝔦𝔰𝔱𝔯𝔲𝔟 . . | 𝔩𝔞𝔷𝔶 ![](https://64.media.tumblr.com/2462196a4c3980a10c62821e70208b77/95ad12fd9e0aa6ea-8d/s75x75_c1/bcffac91626fecc002025e7d7af6158fd9f21289.gifv) 𝔞𝔯𝔱𝔦𝔰𝔱
 
 ᴾˡᵉᵃˢᵉ ᵈⁿⁱᵘᶠ
 [𝟙](https://en.pronouns.page/@.Kuji) [𝟚](https://rentry.co/Th3Kxka) [𝟛](https://rentry.co/Divination_Commission)
