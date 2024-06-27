@@ -1,23 +1,29 @@
 <div align="center">
-𝘛𝘩𝘪𝘴 𝘱𝘭𝘢𝘤𝘦. . 𝘪𝘴 𝘣𝘶𝘵 𝘢 𝘷𝘪𝘴𝘪𝘰𝘯!
 
-![](https://64.media.tumblr.com/5932387ebec575266109062e5a9e3df0/396b5e90093062a4-98/s1280x1920/51ad060b848af57fd332ccca07b0a23b367f6258.pnj)
+𝘒𝘦𝘦𝘱 𝘺𝘰𝘶𝘳 𝘸𝘦𝘢𝘱𝘰𝘯 𝘢𝘵 𝘵𝘩𝘦 𝘳𝘦𝘢𝘥𝘺. 𝘺𝘰𝘶'𝘭𝘭 𝘯𝘦𝘷𝘦𝘳 𝘬𝘯𝘰𝘸 𝘸𝘩𝘢𝘵'𝘴 𝘢𝘳𝘰𝘶𝘯𝘥 𝘵𝘩𝘦 𝘤𝘰𝘳𝘯𝘦𝘳. .
 
-![](https://64.media.tumblr.com/dc0d6898709d73949bbf5f130fc38233/eb622308336cff29-3e/s1280x1920/aea765d6e9e52edabf840664ceffaf4a63625330.pnj)
-![](https://64.media.tumblr.com/198c1caeb99ef35873010155572f13d8/eb622308336cff29-62/s1280x1920/c9a25b39e2dafbe4eb31f18253b8f083ef30945f.pnj)
+![](https://64.media.tumblr.com/4a4c882b674d6d8d50ec00328277977b/2043e2be9db526fa-67/s2048x3072/1bc2d5e5f9a33f5a60f30ed9128f8155461b10e9.pnj)
 
-𝔞𝔫𝔶![](https://64.media.tumblr.com/adbf098b1d275fb831abc6d08609e159/95ad12fd9e0aa6ea-6a/s75x75_c1/7b7cff1c593e6b9928b729a00a0773515d7b5cfd.gifv)𝔭𝔯𝔬𝔫𝔬𝔲𝔫𝔰
+![](https://64.media.tumblr.com/4c55c37e6c46febb4f2f06a4209dc4cf/953785380423c5c3-d3/s640x960/58398498d07476f4057e30140df114fdd2a7afd3.pnj)
 
-𝔐𝔦𝔫𝔬𝔯![](https://64.media.tumblr.com/348c8c1305e5c31374971064f97ef221/95ad12fd9e0aa6ea-db/s75x75_c1/edd9268dfaae33e3b465552183669d87671b004a.gifv)
+![](https://64.media.tumblr.com/375e505b63abb6144751b42f0c3cd3af/d618ac9f4b18ceb1-1b/s400x600/99bedec5c21adf0cf4b23a11888a5a1f74c89a1d.pnj)
 
-ℑ 𝔡𝔬𝔫’𝔱 𝔩𝔦𝔨𝔢 𝔟𝔢 𝔡𝔦𝔰𝔱𝔯𝔲𝔟 | 𝔩𝔞𝔷𝔶 ![](https://64.media.tumblr.com/2462196a4c3980a10c62821e70208b77/95ad12fd9e0aa6ea-8d/s75x75_c1/bcffac91626fecc002025e7d7af6158fd9f21289.gifv) 𝔞𝔯𝔱𝔦𝔰𝔱
+𝔞𝔫𝔶![](https://64.media.tumblr.com/c9a50c26550c1afaf767bc021f4dcafd/47a4384795cbfe1a-6a/s75x75_c1/c0964943c74543ac8c0f62a837d7234110a57e44.gifv)𝔭𝔯𝔬𝔫𝔬𝔲𝔫𝔰
+
+𝔐𝔦𝔫𝔬𝔯![](https://64.media.tumblr.com/04d1f048a4dc652911727417dd0c60fb/d38264845c94c5f6-c4/s75x75_c1/d8133d9295114c0ae885afd57038936dee883686.gifv)
+
+ℑ 𝔡𝔬𝔫’𝔱 𝔩𝔦𝔨𝔢 𝔟𝔢 𝔡𝔦𝔰𝔱𝔯𝔲𝔟 | 𝔩𝔞𝔷𝔶 ![](https://64.media.tumblr.com/30fd906a88243ca3d7d7d94c31317502/ca4465b320746059-7a/s75x75_c1/7524cf5bd8b0aa26e06d1ed18d74c8657554288c.gifv) 𝔞𝔯𝔱𝔦𝔰𝔱
 
 ᴾˡᵉᵃˢᵉ ᵈⁿⁱᵘᶠ
-![](https://64.media.tumblr.com/198c1caeb99ef35873010155572f13d8/eb622308336cff29-62/s1280x1920/c9a25b39e2dafbe4eb31f18253b8f083ef30945f.pnj)
 
-[𝟙](https://en.pronouns.page/@.Kuji) [𝟚](https://rentry.co/Th3Kxka) [𝟛](https://rentry.co/Divination_Commission)
+![](https://64.media.tumblr.com/375e505b63abb6144751b42f0c3cd3af/d618ac9f4b18ceb1-1b/s400x600/99bedec5c21adf0cf4b23a11888a5a1f74c89a1d.pnj)
 
-![](https://64.media.tumblr.com/b8118e55a304ffc244ab7babb86d665e/29d99bdeaf2c4c42-87/s100x200/07d5e49f60da08b8dc79348090d6746ec62399e3.pnj)
+![](https://64.media.tumblr.com/c4498a3e7033931989fe4ff26c426c10/dbc543f86ede41a3-02/s75x75_c1/eba85e124af841fb6450d07a25587a062e5cae91.gifv)   [𝘐](https://en.pronouns.page/@.Kuji)  ![](https://64.media.tumblr.com/c4498a3e7033931989fe4ff26c426c10/dbc543f86ede41a3-02/s75x75_c1/eba85e124af841fb6450d07a25587a062e5cae91.gifv)  [𝘐𝘐](https://rentry.co/Th3Kxka)  ![](https://64.media.tumblr.com/c4498a3e7033931989fe4ff26c426c10/dbc543f86ede41a3-02/s75x75_c1/eba85e124af841fb6450d07a25587a062e5cae91.gifv)  [𝘐𝘐𝘐](https://rentry.co/Divination_Commission)  ![](https://64.media.tumblr.com/c4498a3e7033931989fe4ff26c426c10/dbc543f86ede41a3-02/s75x75_c1/eba85e124af841fb6450d07a25587a062e5cae91.gifv) [𝘐𝘐𝘝](https://rentry.co/LINKUJI)  ![](https://64.media.tumblr.com/c4498a3e7033931989fe4ff26c426c10/dbc543f86ede41a3-02/s75x75_c1/eba85e124af841fb6450d07a25587a062e5cae91.gifv)
+
+![](https://64.media.tumblr.com/58d46d0eb7f1fe3e8e55d9f842c62498/953785380423c5c3-e4/s100x200/2ff5aabfd84fb85d608ea18223cccaa88704ac57.pnj)
 
 ---
-ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ᵐᵘʳᶜᵘᵒʳ](https://www.tumblr.com/murcuor/750889951804243968/charlotte-dan-heng-graphics-f2u-non?source=share)
+
+ᵍᵒʳᵒᵘ ᵍʳᵃᵖʰⁱᶜˢ ᵇʸ [ˢᶜʸᵗʰⁱᵈᵒˡ](https://www.tumblr.com/scythidol) ᵈⁱᵛⁱᵈᵉʳˢ ᵇʸ [ᵖˡᵘᵗⁱˢᵐ](https://www.tumblr.com/plutism) ᵃⁿᵈ [ᶠᵃⁱʳʸᵗᵒᵖᵉᵃ](https://www.tumblr.com/fairytopea)
+
+ᵐᵃᵈᵉ ᵇʸ [ʳᵒˢᵉ](https://github.com/FurinaTheFountain)
