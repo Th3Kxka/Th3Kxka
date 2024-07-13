@@ -28,4 +28,4 @@
 
 ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ˡˡᵒᶜᵏᵉᵗ](https://www.tumblr.com/llocket) ⁿ [ᵈˣˣᵗʰ⁻ᵍˣᵈ](https://www.tumblr.com/dxxth-gxd) ᵖⁱˣᵉˡˢ ᵇʸ [ᵐᵒᵗʷʷˡ](https://www.tumblr.com/motwwl) ᵈⁱᵛⁱᵈᵉʳˢ ᵇʸ [ʰʸᵉˡⁱᵗᵃ](https://www.tumblr.com/hyelita)
 
-ᵐᵃᵈᵉ ᵇʸ [ʳᵒˢᵉ](https://github.com/FurinaTheFountain)ain)
+ᵐᵃᵈᵉ ᵇʸ [ʳᵒˢᵉ](https://github.com/FurinaTheFountain)
