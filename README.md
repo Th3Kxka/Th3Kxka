@@ -11,7 +11,7 @@
 
 They / He ![](https://64.media.tumblr.com/4d58f9a093b2b0f08f227619de0291ca/a53559b838a1040c-a2/s75x75_c1/d20179ce0d513fdc71302afb8edbfe0ec267e5ec.gifv) 𝐏𝐫𝐨𝐮𝐧𝐨𝐧𝐬
 
-![](https://64.media.tumblr.com/2520eae844a97c65a8efbed06aa2868d/a2ae450d1dcd6545-02/s75x75_c1/2e9b3ef4bd8dfce53b6c88476a727db2822894f4.gifv) [𝓘𝓷𝓽𝓻𝓸]([https://rentry.co/s5ycw3ts](https://kujimeiruintro.straw.page)) 
+![](https://64.media.tumblr.com/2520eae844a97c65a8efbed06aa2868d/a2ae450d1dcd6545-02/s75x75_c1/2e9b3ef4bd8dfce53b6c88476a727db2822894f4.gifv) [𝓘𝓷𝓽𝓻𝓸](https://kujimeiruintro.straw.page)
 
 
 ![](https://64.media.tumblr.com/7288c929848491a37af56f346c854981/53b28a880a29cd42-21/s250x400/ecdf9f9387e49301d1221e1d6e7afe3a99feae6d.gifv)
