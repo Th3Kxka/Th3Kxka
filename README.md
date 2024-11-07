@@ -10,5 +10,5 @@ kuji ㅤor kyu
 ![](https://64.media.tumblr.com/8615a420a0120422b75d6bed084aa350/a2c9f35280bc6455-ef/s75x75_c1/fae57df679abb856951801c9997bb1b0c8f7c594.gifv)ㅤㅤ ㅤ![](https://64.media.tumblr.com/8615a420a0120422b75d6bed084aa350/a2c9f35280bc6455-ef/s75x75_c1/fae57df679abb856951801c9997bb1b0c8f7c594.gifv)ㅤㅤ ㅤ![](https://64.media.tumblr.com/8615a420a0120422b75d6bed084aa350/a2c9f35280bc6455-ef/s75x75_c1/fae57df679abb856951801c9997bb1b0c8f7c594.gifv)ㅤ
 
 ---
-->ᵍʳᵖʰ ᵇʸ [ᶜʰᵉʷᵗᵒᵘ](https://www.tumblr.com/chewtou) ᵖⁱˣᵉˡˢ ᵇʸ  [ᵇʳᵃⁱⁿⁿᵘᵗˢ](https://www.tumblr.com/brainnuts)ㅤ<-
-->ᵐᵃᵈᵉ ᵇʸ [ʳᵒˢᵉ](https://github.com/FurinaTheFountain)ㅤ<-
+ᵍʳᵖʰ ᵇʸ [ᶜʰᵉʷᵗᵒᵘ](https://www.tumblr.com/chewtou) ᵖⁱˣᵉˡˢ ᵇʸ  [ᵇʳᵃⁱⁿⁿᵘᵗˢ](https://www.tumblr.com/brainnuts)ㅤ
+ᵐᵃᵈᵉ ᵇʸ [ʳᵒˢᵉ](https://github.com/FurinaTheFountain)ㅤ
