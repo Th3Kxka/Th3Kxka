@@ -1,14 +1,13 @@
 <div align="center">
+  
+![](https://64.media.tumblr.com/1fe499c0903497f768d5e1ce129c4271/98e55082be2d0c97-62/s1280x1920/9b66ee89944fee0afeed3fe24d6bae688d80d6dc.pnj)
 
-![](https://64.media.tumblr.com/722f306ac35dbf0c4c8abd656dee64da/688ff1f21dad726b-91/s2048x3072/9ee448249199c251498e2af23b35c6d3faa3de78.gifv)
+![](https://64.media.tumblr.com/d161b0f6b8e1ec59ef329e0cf3f4cd7e/2440059ba32d9e4b-3d/s2048x3072/01e3a94a4a72cd32078671303512b8a2cf18e16e.pnj)
 
-kuji ㅤor kyu
-![](https://64.media.tumblr.com/627b13df401ebfdf7d8aef4f039b3ff9/a2c9f35280bc6455-f9/s75x75_c1/d24f3e74690ffc178f6632499411dab7f2b7bb0e.gifv) he⭑they
-
-![](https://64.media.tumblr.com/4a79ee880fd6394b8de66a8c188ad29c/a2c9f35280bc6455-89/s75x75_c1/f8c6c136903578412e649012f1f5e7d4e7db2529.gifv) [atabook](https://kuji.atabook.org/)ㅤㅤ ㅤ[strwpage](https://kuji.straw.page/)ㅤㅤ ㅤ[prnpage](https://en.pronouns.page/@the_kxka) ![](https://64.media.tumblr.com/4a79ee880fd6394b8de66a8c188ad29c/a2c9f35280bc6455-89/s75x75_c1/f8c6c136903578412e649012f1f5e7d4e7db2529.gifv)ㅤ
-
-![](https://64.media.tumblr.com/8615a420a0120422b75d6bed084aa350/a2c9f35280bc6455-ef/s75x75_c1/fae57df679abb856951801c9997bb1b0c8f7c594.gifv)ㅤㅤ ㅤ![](https://64.media.tumblr.com/8615a420a0120422b75d6bed084aa350/a2c9f35280bc6455-ef/s75x75_c1/fae57df679abb856951801c9997bb1b0c8f7c594.gifv)ㅤㅤ ㅤ![](https://64.media.tumblr.com/8615a420a0120422b75d6bed084aa350/a2c9f35280bc6455-ef/s75x75_c1/fae57df679abb856951801c9997bb1b0c8f7c594.gifv)ㅤ
+ ⭑ [𝔖𝔱𝔯𝔞𝔴𝔭𝔞𝔤𝔢](https://kuji.straw.page/) ⭑ ![](https://64.media.tumblr.com/abdc7ab34a8deffe74576ee0b13ad298/334a52adf4ce2435-14/s75x75_c1/ff569179591b012d06c60b38b7b27bce3599f4b7.gifv) ⭑ [𝔓𝔯𝔬𝔫𝔬𝔲𝔰](https://en.pronouns.page/@the_kxka) ⭑ ![](https://64.media.tumblr.com/abdc7ab34a8deffe74576ee0b13ad298/334a52adf4ce2435-14/s75x75_c1/ff569179591b012d06c60b38b7b27bce3599f4b7.gifv) ⭑ [𝔄𝔱𝔞𝔟𝔬𝔬𝔨](https://kuji.atabook.org/) ⭑ ![](https://64.media.tumblr.com/abdc7ab34a8deffe74576ee0b13ad298/334a52adf4ce2435-14/s75x75_c1/ff569179591b012d06c60b38b7b27bce3599f4b7.gifv) ⭑ [𝔒𝔱𝔥𝔢𝔯 𝔰𝔱𝔲𝔣𝔣𝔰](https://rentry.co/Kujistuffs)⭑
 
 ---
-ᵍʳᵖʰ ᵇʸ [ᶜʰᵉʷᵗᵒᵘ](https://www.tumblr.com/chewtou) ᵖⁱˣᵉˡˢ ᵇʸ  [ᵇʳᵃⁱⁿⁿᵘᵗˢ](https://www.tumblr.com/brainnuts)ㅤ
-ᵐᵃᵈᵉ ᵇʸ [ʳᵒˢᵉ](https://github.com/FurinaTheFountain)ㅤ
+
+ᵍʳᵖʰ ᵇʸ [ˢᵘⁿᵈᵃʸʷⁱⁿᵍˢ](https://www.tumblr.com/sundaywings) ᵖⁱˣˡ ᵇʸ [ᵇʳᵃⁱⁿⁿᵘᵗˢ](https://www.tumblr.com/brainnuts/744784736758677504) ᵈⁱᵛⁱᵈᵉʳ ᵇʸ [ᶜʰᵃᶜʰᵃ](https://www.tumblr.com/chachachannah)
+
+ᵐᵃᵈᵉ ᵇʸ [ʳᵒˢᵉ](https://github.com/FurinaTheFountain)
